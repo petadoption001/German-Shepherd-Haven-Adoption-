@@ -1,2 +1,2 @@
 # German-Shepherd-Haven-Adoption-
-Rescue and Rehoming 
+Rescue and Rehoming
